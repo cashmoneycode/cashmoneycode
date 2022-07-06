@@ -1,0 +1,5 @@
+- 👋 Hi,I'm Bukky
+- 👀 I’m interested in learning something in tech
+- 🌱 I’m currently at the beginning stage
+- 💞️ I’m looking to get any knowlwdge possible
+- 📫 How to reach me @dlbukola999@gmail.com
